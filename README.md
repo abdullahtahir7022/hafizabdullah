@@ -8,7 +8,5 @@
 - Phone Number [+923064607395](+923064607395)
 
 - Email **abdullahtahir7022@gmail.com**
-
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
